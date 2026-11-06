@@ -4,7 +4,7 @@
 
 **AI/ML Engineer • Electronics Engineering Student**
 
-singhprarabdh555@gmail.com | +91 7398994086
+singhprarabdh555@gmail.com |
 [LinkedIn](https://linkedin.com/prarabdh-singh) • [GitHub](https://github.com/Co-prarabdh)
 
 </div>
